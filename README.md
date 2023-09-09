@@ -1,2 +1,2 @@
 # cosmic-modpack
-skript
+what are u doing here
